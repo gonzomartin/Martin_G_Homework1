@@ -6,4 +6,6 @@ I was quite a smoker, and i have a nice colletion of lighters, i actually have q
 
 This is an extra change to check that the colaboration work right.
 
-I guess i had to do another one just to check
+I guess i had to do another one just to check.
+
+I explain a little bit about who i am, what i like and which ones are my collections.
